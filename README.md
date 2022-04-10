@@ -1,2 +1,2 @@
-# Dikan-Icon-design
+# Dikan-Icon-Design
 Graphic design
